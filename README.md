@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Alekiey254
+- 👀 I’m interested in playing football and swimming..
+- 🌱 I’m currently learning business management and finance.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me via email: alexkyum254@gmail.com
+- 😄 Pronouns: Alexander 
+- ⚡ Fun fact: I love adventure 
+- This a beautiful view of Mt Kenya from my hometown![IMG_20240119_081109](https://github.com/Alekiey254/Alekiey254/assets/161754801/8e8747e4-bcde-47cb-9a44-08f11c1f1d
